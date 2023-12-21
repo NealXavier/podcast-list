@@ -1,2 +1,4 @@
-# podcast-list
-recommand chinese attractive podcast or single episode 
+# 收集精品中文播客
+
+## 前言
+收集各个领域有用有趣的播客，少鸡汤，很主观。
