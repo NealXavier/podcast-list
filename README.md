@@ -11,4 +11,5 @@
 
 ## 基本无害
 ### Ep87 史里芬：做一个谦卑但每个月都能上热搜的vlogger
+![这是图片](https://cdn.jsdelivr.net/gh/NealXavier/picx-images-hosting@master/20231225/IMG_4367.jbke6ke4vmo.webp "shilifen")
 https://www.xiaoyuzhoufm.com/episode/63b94ae792f7bae63bec17a1
