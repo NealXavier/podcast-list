@@ -8,3 +8,7 @@
 
 ## how to play
 会提供 RSS 或 小宇宙链接
+
+## 基本无害
+### Ep87 史里芬：做一个谦卑但每个月都能上热搜的vlogger
+https://www.xiaoyuzhoufm.com/episode/63b94ae792f7bae63bec17a1
