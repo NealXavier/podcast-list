@@ -12,3 +12,7 @@
 ## 基本无害
 ### Ep87 史里芬：做一个谦卑但每个月都能上热搜的vlogger
 https://www.xiaoyuzhoufm.com/episode/63b94ae792f7bae63bec17a1
+
+## 不在场
+### S2E7 内容创作者的困境
+https://www.xiaoyuzhoufm.com/episode/659955abd4deab69c2b152f1
